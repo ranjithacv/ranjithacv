@@ -1,5 +1,5 @@
 # Hi, I'm Ranjitha C V
-I'm currently Studying in 3rd year BE in CS-ICB<br>All of My projects are available on GitHub<br>Reach out to me at ranjithacv88@gmail.com<br>
+I'm currently Studying in 3rd year BE in CS-ICB<br><br>Reach out to me at ranjithacv88@gmail.com<br>
 
 
 ## 🌐 Socials:
